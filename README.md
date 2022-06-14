@@ -6,4 +6,4 @@ made this account a bit ago, decided to log back into it since i started messing
 
 might work on making my own flex cut pcb for o-ring boards since i think it might be a bit fun to learn during the summer.
 
-yeah
+yeah, thanks for reading. 
